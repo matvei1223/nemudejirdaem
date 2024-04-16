@@ -1,0 +1,2 @@
+# nemudejirdaem
+не будь жирдьям 
